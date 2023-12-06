@@ -22,7 +22,6 @@
 
 
 📫 **Contact:**
-- Phone: [+351] 912202376
 - LinkedIn: [Jorge Lobo](https://www.linkedin.com/in/jorgelobo15)
 - Email: jorge-lobo@outlook.pt
 
